@@ -1,1 +1,1 @@
-Code is Poetry.
+Code is Poetry. Websites are Paintings.
